@@ -1,7 +1,6 @@
 ---
 layout: post
 title: 在 Amazon Fresh 买菜的趣事
-category: essays
 tags: 买买买
 ---
 
