@@ -45,5 +45,9 @@ Amazon 嗯，亚马逊也可以买多肉……曾经在 Amazon Treasure Truck �
 
 ![](https://i.v2ex.co/S5Rqi996.jpeg)
 
+花架是楠木的，在亚马逊可以买到，网址是[花架](https://www.amazon.com/gp/product/B01LW0AJUR/ref=oh_aui_detailpage_o04_s00?ie=UTF8&psc=1)
+
+![](https://i.v2ex.co/Hx0bIF8j.jpeg)
+
 ps. 文中的肉肉这几天正在经历南加州 40 + 度的热浪。
 
