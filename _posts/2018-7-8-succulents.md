@@ -7,9 +7,9 @@ tags: 买买买
 
 而居住在加州，真是太幸运了，不用走马观肉，因为个人购买多肉植物非常方便。
 
-![](https://i.v2ex.co/uO4WK303.jpeg)
+![](https://i.v2ex.co/gQ0FksU9.png)
 
-![](https://i.v2ex.co/o48u9Uef.jpeg)
+![](https://i.v2ex.co/EAs0G3xA.png)
 
 ### 通常的实地购买方式有：
 1. 连锁超市的鲜花区域，如 Trader Joe’s，Albertsons。它们的多肉通常都已经修饰过，有漂亮的容器或者造景。
@@ -18,36 +18,36 @@ tags: 买买买
 
 3. 大型家居店苗圃区，如 Home Depot 或者 Lowe’s 的 Garden Center。介于以上两种购买渠道之间，且价格统一和便宜。
 
-![](https://i.v2ex.co/tLvq8VGK.jpeg)
+![](https://i.v2ex.co/4Y05pz8Y.png)
 
-![](https://i.v2ex.co/5i59i1G1.jpeg)
+![](https://i.v2ex.co/15Q7Qndq.png)
 
 
 ### 一些推荐：
 
 一个多肉植物的观赏公园 Huntington Library ，公园非常大，有多个主题小公园组成，夏天游玩需要带足水份，其中的 Huntington Desert Garden 有许多珍惜品种和大型仙人掌。地址是 `1151 Oxford Rd, San Marino, CA 91108`
 
-![](https://i.v2ex.co/HAkB65G9.jpeg)
+![](https://i.v2ex.co/echJ1I73.png)
 
 California Cactus Center 虽然名字仙人掌，其实有卖仙人掌也有景天科，有一些珍稀品种。特色是有售艺术家制作的陶器花盆。整体价格偏高，停车位很少。地址是 `216 S Rosemead Blvd, Pasadena, CA 91107`
 
-![](https://i.v2ex.co/1v06xQna.jpeg)
+![](https://i.v2ex.co/I3ADg2y1.png)
 
 OC Succulents 坐落在橙县的大型苗圃，植物种类多，量大，价格便宜，多肉类植物可以看到眼花。特色是空气凤梨的种类多，花盆，沉木，石头等装饰周边应有尽有。地址是： `3350 Warner Ave, Irvine, CA 92606`
 
-![](https://i.v2ex.co/IP6h6ZDc.jpeg)
+![](https://i.v2ex.co/a8AOPQqp.png)
 
 北加州的 Succulent Gardens 造景漂亮，种类多，有珍稀品种。还可以在线购买，网址是[Succulent Gardens](https://sgplants.com/collections/online-store)。实体店地址是： `2133 Elkhorn Road, Castroville, CA 95012` 
  
-![](https://i.v2ex.co/v75v29u4.jpeg)
+![](https://i.v2ex.co/70O1IO1r.png)
 
 Amazon 嗯，亚马逊也可以买多肉……曾经在 Amazon Treasure Truck 低价买到一盒多肉植物，有 18 小株，全是不同的品种。
 
-![](https://i.v2ex.co/S5Rqi996.jpeg)
+![](https://i.v2ex.co/9aGrr6uP.png)
 
 花架是楠木的，在亚马逊可以买到，网址是[花架](https://www.amazon.com/gp/product/B01LW0AJUR/ref=oh_aui_detailpage_o04_s00?ie=UTF8&psc=1)
 
-![](https://i.v2ex.co/Hx0bIF8j.jpeg)
+![](https://i.v2ex.co/6fXpDYqq.png)
 
 ps. 文中的肉肉这几天正在经历南加州 40 + 度的热浪。
 
